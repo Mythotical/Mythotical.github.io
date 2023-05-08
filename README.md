@@ -1,0 +1,1 @@
+# Mythotical.github.io
